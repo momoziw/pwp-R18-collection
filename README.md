@@ -91,6 +91,9 @@ pwp：第三人窥视/半公开场合/内陷ru
 26.[【藕饼】棠棣（pwp）](http://mianyukongjudeziyou.lofter.com/post/1e382e02_1c6491bd0) 作者：[NinelieS](http://mianyukongjudeziyou.lofter.com/)
 入魔藕/孕期饼/混天绫蒙眼/后背wei
 
+27.[【藕饼pwp】欢情铃](http://studyholiccjt.lofter.com/post/1e41e37a_1c659f772) 作者：[芥末吃芥末](http://studyholiccjt.lofter.com/)
+道具pa是重点，铃铛有妙用x，作者太太脑洞开得太漂亮了15551，肉香肥美，安利
+
 <br/>
 
 我们的酒池肉林有那——么大，po主精尽人亡了，下一次8.8号见啦
