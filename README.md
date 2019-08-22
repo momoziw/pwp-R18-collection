@@ -27,8 +27,8 @@
 5.[【藕饼】冬敷火莲夏饮冰(剧情向PWP/ABO，一发完)](http://tuaojun.lofter.com/post/1d6d3e2a_1c64cb690) 作者：[三钱附子五两生](http://tuaojun.lofter.com/)
 霸道深情厚脸皮A吒×傲娇清冷心机O丙，标记/占有欲/混天绫他用get/水中【哔】/主动索求/设局入套梗，文中设定发生于二人以藕重塑金身后。
 
-6.[【藕饼】最浅月色（r）](http://mayihavesometea.lofter.com/post/1d0e5112_1c64711a1) 作者：[碎冰茶](http://mayihavesometea.lofter.com/)
-超萌爆好嗑的一篇pwp！风火轮和混天绫好忙hhhh
+6.[藕饼R](http://baimiaodahaozhale440.lofter.com/post/30aad750_1c6448acc)  作者：[白喵（大号炸了）](http://baimiaodahaozhale440.lofter.com/)
+4k+一发完，含有换角期/发，qing期/尾巴/舔角/生。zhi 。qiang/捆绑/混天绫 /风火轮
 
 7.[【藕饼】认贼作父（PWP）](http://qiushuifupingrenmiaomiao.lofter.com/post/1f00051d_1c636cfb4) 作者：[real缪](http://qiushuifupingrenmiaomiao.lofter.com/)
 含有怀孕，下蛋，xuxu等情节
@@ -45,8 +45,8 @@
 11.[【藕饼/pwp】安得流火](http://onaijing.lofter.com/post/2033468f_1c63ff895) 作者：[北美莓果奶盖小姐🍬](http://onaijing.lofter.com/)
 4k+一发完，混#天绫play+火¥焰山play+互相咬！+各种体(。ì _ í。)位
 
-12.[藕饼R](http://baimiaodahaozhale440.lofter.com/post/30aad750_1c6448acc)  作者：[白喵（大号炸了）](http://baimiaodahaozhale440.lofter.com/)
-4k+一发完，含有换角期/发，qing期/尾巴/舔角/生。zhi 。qiang/捆绑/混天绫 /风火轮
+12.[【藕饼】最浅月色（r）](http://mayihavesometea.lofter.com/post/1d0e5112_1c64711a1) 作者：[碎冰茶](http://mayihavesometea.lofter.com/)
+超萌的一篇pwp！风火轮和混天绫好忙hhhh
 
 13.[【藕饼pwp】感冒的处理方法](http://chaoyangqunzhongnanqing.lofter.com/post/204c263f_1c6502110) 作者：[南清老咸鱼](http://chaoyangqunzhongnanqing.lofter.com/)
 内含：18/内🐍/道ju/捆bang～
